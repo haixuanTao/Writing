@@ -1,12 +1,12 @@
 # Faire des binômes.
 
-je me souviens, quand la professeur des écoles nous demandait de faire des binômes en sport ou en science, de la peur de me retrouver seul ou de la honte de me retrouver avec une personne "nulle".
+je me souviens, quand la professeur des écoles nous demandait de faire des binômes en sport ou en science, de la peur de me trouver seul ou de la honte de me retrouver avec une personne "nulle".
 
-Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. J'étais alors souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants qui sentaient mauvais, ceux qui étaient mal lavés.
+Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. J'étais par conséquent souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
 
-Avec le temps, j'ai appris à travailler avec les personnes rejetés et j'ai alors remmarqué que la reussite d'un binôme est enfaite plus corrélé aux volontées de dialoguer, de travailler, et de perséverer, qu'aux messes basses des fonds de classe. 
+Avec le temps, j'ai appris à travailler avec les personnes rejetés et j'ai alors remmarqué que la réussite d'un binôme est enfaite plus corrélé aux volontées de dialoguer, de travailler, et de perséverer, qu'aux messes basses des fonds de classe. 
 
-j'ai alors appris à dépasser la peur, la honte pour être fier de travailler avec quelqu'un qui essaie d'y arriver.
+j'ai alors appris à remplacer la peur et la honte par de la fierté de travailler avec quelqu'un qui essaie d'y arriver.
 
 You admire a character for trying more than for their successes. - Pixar
 
