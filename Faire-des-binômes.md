@@ -4,9 +4,9 @@ je me souviens, quand la professeur des écoles nous demandait de faire des bin�
 
 Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. Et par conséquent, je finissais souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
 
-Avec le temps, j'ai appris à travailler avec les personnes rejetés et j'ai alors remmarqué que la réussite d'un binôme est enfaite plus corrélé aux volontées de dialoguer, de travailler, et de perséverer, qu'aux messes basses des fonds de classe. 
+Avec le temps, j'ai appris à travailler avec les personnes rejetés et j'ai alors remmarqué que la réussite d'un binôme est enfaite plus liée aux volontées de dialoguer, de travailler, et de perséverer, qu'aux messes basses des fonds de classe. 
 
-j'ai alors appris à remplacer la peur et la honte par de la fierté de travailler avec quelqu'un qui essaie d'y arriver.
+j'ai alors remplacé la peur et la honte par de la fierté de travailler avec quelqu'un qui essaie d'y arriver.
 
 You admire a character for trying more than for their successes. - Pixar
 
