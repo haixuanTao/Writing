@@ -6,7 +6,7 @@ Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le ch
 
 Avec le temps, j'ai appris à travailler avec les personnes rejetées et j'ai alors remarqué que la réussite d'un binôme est beaucoup plus liée aux volontés de dialoguer, de travailler, et de perseverer, qu'aux messes basses des fonds de classe. 
 
-j'ai alors remplacé la peur et la honte par de la fierté de travailler avec quelqu'un qui essaie d'y arriver.
+j'ai appris à être fier de travailler avec quelqu'un qui essaie d'y arriver.
 
 You admire a character for trying more than for their successes. - Pixar
 
