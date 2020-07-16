@@ -1,8 +1,8 @@
 # Faire des binômes.
 
-je me souviens, quand la professeur des écoles nous demandait de faire des binômes en sport ou en science, de la peur de me trouver seul ou de la honte de me retrouver avec une personne "nulle".
+je me souviens, quand la professeur des écoles nous demandait de faire des binômes en sport ou en science, de la peur de finir seul ou de la honte de me retrouver avec une personne "nulle".
 
-Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. J'étais par conséquent souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
+Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. Et par conséquent, je finissais souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
 
 Avec le temps, j'ai appris à travailler avec les personnes rejetés et j'ai alors remmarqué que la réussite d'un binôme est enfaite plus corrélé aux volontées de dialoguer, de travailler, et de perséverer, qu'aux messes basses des fonds de classe. 
 
