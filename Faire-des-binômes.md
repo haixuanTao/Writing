@@ -4,7 +4,7 @@ je me souviens, quand la professeur des écoles nous demandait de faire des bin�
 
 Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. Et par conséquent, je finissais souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
 
-Avec le temps, j'ai remarqué que la réussite d'un binôme est beaucoup plus liée aux volontés de dialoguer, de travailler, et de perseverer, qu'aux messes basses des fonds de classe. 
+Avec le temps, j'ai remarqué que la réussite de mon binôme était beaucoup plus liée aux volontés de dialoguer, de travailler, et de perseverer, qu'aux messes basses des fonds de classe. 
 
 j'ai appris à être fier de travailler avec quelqu'un qui essaie d'y arriver.
 
