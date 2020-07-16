@@ -8,8 +8,6 @@ Avec le temps, j'ai remarqué que la réussite d'un binôme est beaucoup plus li
 
 j'ai appris à être fier de travailler avec quelqu'un qui essaie d'y arriver.
 
-You admire a character for trying more than for their successes. - Pixar
-
 Si vous deviez revivre votre école primaire, qui prendriez vous comme binône? Le plus fort de la classe? La personne qui vous ressemble le plus? Ou celui ou celle qui en a le plus besoin et qui est prêt à faire les efforts? Malgré son origine et son milieu social? Malgré son redoublement? Malgré ses caractéristiques tangibles indépendantes de la reussite de votre binôme?
 
 Et si demain, vous deviez choisir la prochaine personne avec qui vous allez travailler, qui choisirez vous?
