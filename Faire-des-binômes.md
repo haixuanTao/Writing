@@ -2,9 +2,12 @@
 
 je me souviens, quand la professeur des écoles nous demandait de faire des binômes en sport ou en science, de la peur de finir seul ou de la honte de me retrouver avec une personne "nulle".
 
-Je m'en souviens très bien, car étant enfant d'immigré, je n'étais pas le choix privilégié des personnes favorisées. Et par conséquent, je finissais souvent en binôme avec les autres enfants d'immigrés, les redoublants, et les enfants mal lavés.
+Je m'en souviens car, enfant d'immigré, je n'étais pas le choix privilégié des enfants favorisées. Mes binomes etaient souvent d'autres enfants d'immigrés, des redoublants, et des enfants mal lavés.
 
-Avec le temps, j'ai remarqué que la réussite de mon binôme était beaucoup plus liée aux volontés de dialoguer, de travailler, et de perseverer, qu'aux messes basses des fonds de classe. 
+Mais, les messes basses des fonds de classe s'est souvent revele une fausse mesure de 
+
+
+la réussite de mon binôme a souvent etait plus liée aux volontés de dialoguer, de travailler, et de perseverer et  si 
 
 j'ai appris à être fier de travailler avec quelqu'un qui essaie d'y arriver.
 
